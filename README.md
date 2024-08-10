@@ -113,6 +113,5 @@ instruments in this or in any other jurisdiction in which such solicitation or o
 securities laws of such jurisdiction.
 
 If you plan to use real money, use at your own risk.
-
 Under no circumstances will I be held responsible or liable in any way for any claims, damages, losses, expenses, costs,
 or liabilities whatsoever, including, without limitation, any direct or indirect damages for loss of profits.
